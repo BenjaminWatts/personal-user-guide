@@ -13,6 +13,7 @@
 ## Communication 
 1. I'm not a big fan of phone calls, or SMS/Whatsapp for professional stuff. Fine with Linked In, or Slack. Not really into any other social media, if you message me on Github (pull requests etc are fine!) don't expect a particularly timely response. 
 2. My spam-to-email ratio is quite high. I prefer Slack/Linked In.
+3. I'm genuinely not impressed by people who call me for a business call on a mobile phone (especially while driving or on a train - mobile signal is never as good as you think it will be). If you're late or need to reschedule, that's totally cool. 
 
 ## Day to Day working guide
 1. Much of my life evolves around my 4 year old son Jack. I like to spend with him especially 3pm-7pm, but often work again later in the evening. He's sometimes around my garden office, but rarely interrupts what I'm up to unless he has a playdate. Occasionally I go out somewhere with a nice view around where I live (Dartmoor) and work in my campervan.
